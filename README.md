@@ -1,5 +1,6 @@
-# test
+# AC-130
 
-### 안녕하세요
-안녕하세요
-![7d42e7a69ce0ce9b9727cbc66e2d1c59_1587966256_7833](https://user-images.githubusercontent.com/93583766/139829200-2cf858ec-e467-4a9b-95bd-66731ee7faab.jpg)
+### AC-130
+SPECTER
+
+![8lPUQm1](https://user-images.githubusercontent.com/93583766/139829661-59e0a177-64df-4631-927e-ca082e2a4c03.jpg)
